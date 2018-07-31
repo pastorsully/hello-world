@@ -1,2 +1,2 @@
 # hello-world
-Just a test
+Christ follower since June 30, 1995. I passonately follow Him each and everyday. Every breath I take, and every step I make are 100% for Christ. The Holy Spirit controls my thoughts and emotions. I rest in His peace in all that I do. Thankfulness is what I practice all the time, not just once in a while. Trusing Him daily, talking to Him all day, rest in His love for me, and turn everything over to Him to handle, because he can handle it, we don't have to.
